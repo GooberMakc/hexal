@@ -1,0 +1,1 @@
+Langing page was created using PSD template.

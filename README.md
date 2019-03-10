@@ -1,1 +1,1 @@
-Langing page was created using PSD template.
+Langing page was created using PSD template. Images and fonts attached to assets folder.
